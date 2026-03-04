@@ -5,7 +5,7 @@ my first repository
 
 **be bold!**
 _are you italian?_
-[click me](https://www.youtube.com/watch?v=JamSc4rdOCk&list=RDJamSc4rdOCk&start_radio=1)
+[click me](https://media.tenor.com/gtbRv5TnQ0kAAAAM/cats-squish.gif)
 
 hope everything is alright
 take care!
